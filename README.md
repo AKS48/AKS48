@@ -10,4 +10,4 @@ Besides being a superhero without the powers, I'm a dedicated learner on a journ
 <br>
 <br>
 <br>
-![Me swimming, coding, and eating pizza.](https://tse3.mm.bing.net/th/id/OIG3.9b.BGYrduh.3j.A7rj05?pid=ImgGn)
+![landscape version teen boy swimming coding while eating pizza](https://github.com/user-attachments/assets/11ba3bae-c448-42d1-9de6-9d72ab1d7d1b)
