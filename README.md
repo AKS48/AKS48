@@ -1,4 +1,4 @@
-<h1 align="center"> Osiyo Earthlings! I'm Amaudre! 🤨🦸🏾‍♂️ </h1>
+<h1 align="center"> Osiyo Earthlings! I'm AKS48! 🤨🦸🏾‍♂️ </h1>
 
 <!--
 **AKS48/AKS48** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
